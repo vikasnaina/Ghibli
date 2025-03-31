@@ -1,2 +1,0 @@
-# Ghibli
-Sab free hai
